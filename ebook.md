@@ -1,5 +1,5 @@
 TRADE YOUR WAY TO THE TOP
-######
+======
 
 ## Step Five
 Build a helathy self-esteem with a series of short steps. One reason many people never attempt new things is their fear of failure. Start a new rading strategy with an amount you are confident you can handle, and then capitalize the gains. Paper trading can be usueful to build momentum in this context.
